@@ -1,0 +1,2 @@
+# Easy-Mobile-version
+AZAV
